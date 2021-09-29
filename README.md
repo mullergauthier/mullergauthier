@@ -7,6 +7,8 @@ Outside of Data? I am a beer lover that I brew in 30 L batches 🍺, I co-organi
 
 My strength:
 Autonomy, curiosity, adaptability 
+
+https://www.linkedin.com/in/mullergauthier/?locale=en_US
 <!---
 mullergauthier/mullergauthier is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
